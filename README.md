@@ -1,0 +1,1 @@
+# ycjhdaily2000-vocabulary
